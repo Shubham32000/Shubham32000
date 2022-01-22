@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Shubham32000
+- 👀 I’m interested in second year engineering
+- 🌱 I’m currently learning INFORMATION TECHNOLOGY
